@@ -15,7 +15,7 @@
 6 -fully cooked breakfast sausage links, cut in 1/4-inch pieces
 1 - package (11 oz) Old El Paso™ flour tortillas for burritos (8 tortillas)
 2- cups shredded Mexican cheese blend (8 oz)
-
+3 - tablespoons mild salsa!
 
 ## Equipment needed:
 
