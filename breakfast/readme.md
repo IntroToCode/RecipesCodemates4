@@ -17,6 +17,8 @@
 2- cups shredded Mexican cheese blend (8 oz)
 3 - tablespoons mild salsa!
 3 - tablespoons super hot salsa sauce (optional)
+8 -Tablespoons of Diary Free Cheese (Optional)  
+1 - california reaper salsa sauce
 
 ## Equipment needed:
 
