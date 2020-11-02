@@ -45,7 +45,7 @@
  
 ¾ cup grated Parmesan cheese
 
-2 cup of shredded Daiya Cheese - (Dairy Free Option)
+2 1/2 cup of shredded Daiya Cheese - (Dairy Free Option)
 
 
 ## Equipment needed:
