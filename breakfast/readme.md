@@ -38,7 +38,7 @@ Step 5: To freeze, wrap each burrito in foil. Label 1-gallon resealable freezer 
 
 ### Notes:
 
-* Include dipping sauces if needed (green hotsauce, red hotsauce, ketchup, sour cream, etc.) and serve with as much nachos needed
+* Include dipping sauces if needed (green hotsauce, red hotsauce, ketchup, sour cream, etc.) and serve with as many nachos needed
 
 
 
