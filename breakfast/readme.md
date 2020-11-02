@@ -23,6 +23,7 @@
 ## Equipment needed:
 
 - 1 Large Saucepan 
+- 1 mid size fry pan
 - Cooking Utensils
 
 
