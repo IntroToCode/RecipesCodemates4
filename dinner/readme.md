@@ -67,7 +67,7 @@ Bake in preheated oven for 25 minutes. Remove foil, and bake an additional 25 mi
 
 
 ### Notes:
-Suggestions? 
+It goes well with a chardonnay white wine
 
 
 ### Codemates #
