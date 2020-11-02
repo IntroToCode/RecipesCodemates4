@@ -48,7 +48,7 @@
 
 ## Equipment needed:
 Oven
-
+Lasagna Pan
 ## Steps for preparation:
 Step 1
 In a Dutch oven, cook sausage, ground beef, onion, and garlic over medium heat until well browned. Stir in crushed tomatoes, tomato paste, tomato sauce, and water. Season with sugar, basil, fennel seeds, Italian seasoning, 1 teaspoon salt, pepper, and 2 tablespoons parsley. Simmer, covered, for about 1 1/2 hours, stirring occasionally.
