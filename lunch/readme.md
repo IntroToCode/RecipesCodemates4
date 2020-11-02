@@ -1,4 +1,4 @@
-# Hotdogs!
+# Hotdog Lunch!
 
 ## Servings: 4 Servings
 
