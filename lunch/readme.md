@@ -24,7 +24,7 @@ Pan
 Flatten hot dog buns with a rolling pin. In a small bowl, stir together butter, garlic powder, and onion powder. Spread all over outsides of buns.
 In a large skillet over medium heat, sear hot dogs (working in batches if necessary) until charred, 2 minutes per side. Set aside.
 Place a bun buttered-side down in skillet and top with a hot dog, and 1/4 of green onions.
-Cover and cook over medium heat then use a spatula to close the bun. Repeat with remaining ingredients to make 4 cheese dogs total. Apply 1.25 lbs of relish per hot dog. Consume. 
+Cover and cook over medium heat then use a spatula to close the bun. Repeat with remaining ingredients to make 4 cheese dogs total. Apply 1.25 lbs of relish per hot dog. Consume with bear hands. 
 
 
 ### Notes:
