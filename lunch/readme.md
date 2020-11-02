@@ -1,4 +1,4 @@
-# Replace with recipe name
+# Hotdogs!
 
 ## Servings: 4 Servings
 
